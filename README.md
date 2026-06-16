@@ -1,0 +1,2 @@
+# Miami-Charter-Bus-Rental-Service-
+Miami Charter Bus Rental offers a simple and comfort way for groups to travel around the city and beyond. even you're planning a family trip, school trip, and corporate event, wedding, or airport transfer, a charter bus keep everyone together and makes the journey easier for you. With spacious seating, professional drivers, and reliable service,
